@@ -5,6 +5,7 @@ date: 2014-06-18 05:33:59 -0700
 comments: true
 categories:
  - Short Stories
+ - Fiction
 ---
 {% img no-border left http://i.imgur.com/HeLALFx.png Crossing "A young cottontail bounds through the grass, on a rendezvous with fate" %}
 
