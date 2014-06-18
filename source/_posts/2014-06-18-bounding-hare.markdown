@@ -57,7 +57,7 @@ All these things hit me in waves of profound knowledge. I was the wisest I'd eve
  
 It was ICE! Icy ice all around me! I craned to escape. I couldn't. This was no way to die!
 
-In the green cube, I couldn’t move my back legs to scratch the stings I could feel. A tick had claimed my earlobe, a fly spat on my eye, and a large dungbeetle lumbered over. When I got a good look at him, I chatted him, asking that he please move out of my personal space. He stuck his butt in the air, as if to indicate what he was here for. It was rude. 
+In the green cube, I couldn’t move my back legs to scratch the stings I could feel. A tick had claimed my earlobe, a fly spat on my eye, and a large dungbeetle lumbered over. When I got a good look at him, I chatted him, asking that he please move out of my personal space. He stuck his butt in the air. It was rude. 
 
  I could smell the earth again. The night had moistened things. We were by a river, I realized. I could smell the fishbones nearby. Ants sampled my body, but mercifully only from the numb parts. Decompositions surrounded me. 
 
