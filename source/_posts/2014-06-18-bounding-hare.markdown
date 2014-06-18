@@ -101,7 +101,7 @@ Felines were smaller than I’d thought, but still I felt tiny in it’s jaws. M
 
 It was another impact! 
 
-The feline yowled and ran off. The person beast didn’t hit me with the broom, though. It gently collected me, shaking, in softness. It really didn’t intend to eat me, I realized. 
+The feline yowled and ran off. The person beast didn’t strike my shaking body, though. It gently collected me in softness. It really didn’t intend to eat me, I realized. 
 
 The beast placed me in the form. It talked to me.
 
@@ -109,7 +109,7 @@ The beast placed me in the form. It talked to me.
 
 I chatted it back, I felt the love. We fell asleep like this, and the feline stayed away. 
 
-When my mother was killed, I didn’t understand. Nobody was there to save her from the feline. I didn’t understand why I was born again to this beast. Could my mother have saved me from all this change? 
+When my mother was killed, I didn’t understand. Nobody was there to save her from the feline attacking out nest. I didn’t understand why I was born again to this beast. Could my mother have saved me from all this change? 
 
 Onawa would have to raise our family without out me. I couldn’t save her from uncertainty. Not before, not now. My beast approaches.
 
