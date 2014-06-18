@@ -109,7 +109,7 @@ The beast placed me in the form. It talked to me.
 
 I chatted it back, I felt the love. We fell asleep like this, and the feline stayed away. 
 
-When my mother was killed, I didn’t understand. Nobody was there to save her from the feline attacking out nest. I didn’t understand why I was born again to this beast. Could my mother have saved me from all this change? 
+When my mother was killed, I didn’t understand. Nobody was there to save her from the feline attacking out nest. I didn’t understand why I was born again to this beast. Had she lived, could my mother have saved me from all this change? 
 
 Onawa would have to raise our family without out me. I couldn’t save her from uncertainty. Not before, not now. My beast approaches.
 
