@@ -15,7 +15,7 @@ Every breath hurt more. I was shitting myself from the pain. The bleary sky ligh
 
 I looked hard, I tried not to move, but my legs kept flailing. It was onto me. I knew it saw my body, so I gave up, I forgot what my mother taught me about staying so still, and I looked back and forth at it. It wasn't my partner, but I loved it as if I had found her in that scary shape. It took me. 
 
-In it's clutches, I went up. I saw all black. It placed me in between it's breasts? I was not in its mouth! Why? I kicked off to escape. I forgot about all the pain, but I still couldn't escape! Powerful gravity had my limbs stuck. Like a nightmare, but not being chased and eaten, A terror! A TERROR! 
+In it's clutches, I went up. I saw all black. It placed me in between its breasts? I was not in its mouth! Why? I kicked off to escape. I forgot about all the pain, but I still couldn't escape! Powerful gravity had my limbs stuck. Like a nightmare, but not being chased and eaten, A terror! A TERROR! 
 
 It had roared at me as I lay on softness with jagged ice beneath. The round light above was not what it used to be to me, I had never looked at it this way before. It was surrounded by the entrance of my home. The shape approached and jarred me. I couldn't see the light anymore. Another shape came up and growled. I lost consciousness. 
 
@@ -67,7 +67,7 @@ Everybody was entitled to what was left of me. This didn’t exclude me necessar
 
 Morning came, and so did soup. It was in a long, hard thing, maybe a bug part? It pumped my mouth full of the strangest food I’d ever tasted, over and over. I ate up gratefully. After I learned to eat bark, I started to like it all. This soup tasted like the willow bark in back of the cultivated grass. The meal went on and on. Now this really was much better than bark, I tell you! The fleas agreed; their mornings were sweetened as well. 
 
-I smelled no smoke that morning, no evidence of fire. My eyes revealed to me the lush greens and golds I knew. I couldn’t see much, but I knew that the fire never happened. Bolting to find Onawa would be great, but I’m stuck here in the clutches of the beasts. 
+I smelled no smoke that morning, no evidence of fire. My eyes revealed to me the lush greens and golds I knew before. I couldn’t see much, but I knew that the fire never happened. Bolting to find Onawa would be great, but I was stuck in the clutches of the beasts. 
 
 One of the beasts was a canine. I felt it scratch at the ground, I heard it whimper. The bigger people beasts wouldn’t let it have me yet. Oh, how long? 
 
