@@ -89,7 +89,7 @@ The last straw before I escaped was a good one.  They’d been giving me exotic 
 
 I wriggled my front end up to the border of my form. Even bound, my back end worked better on the soup. I put my front legs on the edge and pulled with all my might. With one extra belly crunch, I was halfway out.
 
-I spazzed hard, and rolled out onto a soft surface. It bounced. Was all the land like this between me and Onawa, I wondered? I’d never been in the desert, it was warm and springy. I could do this, I remember thinking. 
+I spazzed hard, and rolled out onto a soft surface. It bounced. Was all the land like this between me and Onawa, I wondered? I’d never been in this kind of desert, it was warm and springy. I could do this, I remember thinking. 
 
 I moved swiftly to cover those few inches I did. Soft obstacles, like little mountains blocked me from simply heading North. Forging a new trail on this land was hard, but the land wasn’t. I would get going, then roll down the tall softness, to bounce right back were I started.
 
@@ -103,7 +103,7 @@ It was another impact!
 
 The feline yowled and ran off. The person beast didn’t strike my shaking body, though. It gently collected me in softness. It really didn’t intend to eat me, I realized. 
 
-The beast placed me in the form. It talked to me. It listened. It knew my name. 
+The beast placed me in the form. It talked to me. I listened. It knew my name. 
 
 "Ooodin... I love you, Odin. Please rest up now."
 
@@ -111,7 +111,7 @@ I chatted it back, I felt the love. We fell asleep like this, and the feline sta
 
 When my mother was killed, I didn’t understand. Nobody was there to save her from the feline attacking out nest. I didn’t understand why I was born again to this beast. Had she lived, could my mother have saved me from all this change? 
 
-Onawa would have to raise our family without out me. I couldn’t save her from uncertainty. Not before, not now. My beast approaches.
+Onawa would have to raise our family without me. I couldn’t save her from uncertainty. Not before, not now. My beast approaches.
 
 "Odin, are you hungry, Bunny Boy?"
 
