@@ -9,7 +9,7 @@ categories:
 ---
 {% img no-border left http://i.imgur.com/HeLALFx.png Crossing "A young cottontail bounds through the grass, on a rendezvous with fate" %}
 
-The cultivated blades sheltered me as I began my last dance. My partner watched across the way. I skipped into a collision, ricocheted and collapsed. There, I laid on my side, crushed. I was leaving myself for dead. 
+The cultivated blades sheltered me as I began my last dance. My partner watched across the way. I skipped into a collision, ricocheted and collapsed. There, I lay on my side, crushed. I was leaving myself for dead. 
 
 Every breath hurt more. I was messing myself from the pain. The bleary sky lights overtook my upward eye, or was it already gone? I felt my face pulling in on itself. A dark shape came to take me for life. 
 
@@ -37,7 +37,7 @@ They talked about my body and what they would do to it.
 
 When I awoke, I was being hunted by the beast shapes again. I realized they sounded just like the skin trees. They approached, and they whispered and wailed all night by what looked to be the remaining fire. How terrible were these tree beasts, that with their skin, they don't kindle. They must be the source of the fire, I realized. They were going to cook me. 
 
-My cube had soft things for me to lay in. The pain throbbed my whole body. I was so still. If only my mother could see me now, if only I could scratch my ears. 
+My cube had soft things for me to lay in. The pain throbbed my whole body. I was so still. If only my mother could see me now. If only I could scratch my ears. 
 
 I was moved by the beast. As it lifted me, my down eye peeled off of the softness. Cold water was running over my face. I tried to blink, but I don't think that's what happened. Just like when kicking off, I was infantile in my execution. 
 
@@ -45,31 +45,31 @@ Screaming wasn't an option when they put me back down on my bad side. If I was t
 
 What was that? That thing? I didn't want that. I heard them say "broccoli" when they put it in my personal space. It was like the trees didn't even know how to eat me. 
 
-They were warm, and smelled of their fleshy meals. I knew they had been eating meat, the "broccoli" smelled like the field goliaths. Were these even trees? No, I remember realizing, they're people. My Mother always taught me to stay far away from people, because they were supposed to be the deadliest hunters. But these weren't very lethal, they were stupid for sure. Maybe that really is what people are, though I realized, having never encountered them before. My partner would get breakfast by the people's homes, but I knew to stay where it smelled green. These people smell green. 
+They were warm, and smelled of their fleshy meals. I knew they had been eating meat, the "broccoli" smelled like the field goliaths. Were these even trees? No, I remember realizing, they're people. My Mother always taught me to stay far away from people, because they were supposed to be the deadliest hunters. But these weren't very lethal, they were stupid for sure. Maybe that really is what people are though, I realized, having never encountered them before. My partner would get breakfast by the people's homes, but I knew to stay where it smelled green. These people smell green. 
 
-Why couldn't I just go home? Someone else would take it soon. This broccoli was so big, how would I chew it? My mouth won't move, I tried to lick a pest off of my nose, but no. It just kept biting. I needed to suckle. I'd been born again to people. People tree beasts, smell like green, and not too bright.  
- 
+Why couldn't I just go home? Someone else would take it soon. This broccoli was so big, how would I chew it? My mouth won't move, I tried to lick a pest off of my nose, but no. It just kept biting. I needed to suckle. I'd been born again to people. People tree beasts, smell like green, and not too bright. 
+
 Somehow, I knew she wasn't going to be saved by rebirth. It had to do with the people beasts that I was reborn. I began to envy her for what must’ve been a swift demise. If they're this bad at killing me, what else will they try? Had they already killed all the others with their firepower? If so, why did I smell trees still? This was a confusing time. The night sky light told me that I'd be this way for a long time. I was shocked that I was going to be at all. Would I feel more and more pain? I licked my paw to keep from screaming. It turned out to be true that I'd never see her again. She was lost to that itchy smoke, that smoke that was ebbing in and out of my nares. 
 
-I'd never known grief in my past life. As a kit, I was a little much for my mother. My two sisters and brother called me Pipsqueak, being the runt and all. They wished they hadn't when by the second week I was as fat as a young buck. That's part of why I was out of the nest so early. Foraging was hard. I scooted about for hours to the first aromatic thing, savored the juices and fibers, and found the next. Life got sweeter with each precious, tender shoot. Some of the best treats were hard-won in the woods across the way from where I stayed. I'd learned to cross, even though I felt exposed.
+I'd never faced grief in my past life. As a kit, I was a little much for my mother. My two sisters and brother called me Pipsqueak, being the runt and all. They wished they hadn't when by the second week I was as fat as a young buck. That's part of why I was out of the nest so early. Foraging was hard. I scooted about for hours to the first aromatic thing, savored the juices and fibers, and found the next. Life got sweeter with each precious, tender shoot. Some of the best treats were hard-won in the woods across the way from where I stayed. I'd learned to cross, even though I felt exposed.
 
 I met Onawa in those woods. She was older, wiser, and had a big soft belly I loved. I remember dancing for her. She was not very impressed.
 
 In time, she came to love me, though. I'd see her, and greet her with a good ruffing all the time, until one day she let me mount her. That's when we became partners. I'll never forget her, or the way she let me have her droppings before I went home. Ah, life. 
 
 All these things hit me in waves of profound knowledge. I was the wisest I'd ever been, yet my thoughts kept racing. My head hurt. I flopped myself into a better spot and tried to focus on the misty afternoons in my mind. I felt warm there underneath the soft things. The visions got duller as the pain got sharper. 
- 
+
 It was ICE! Icy ice all around me! I craned to escape. I couldn't. This was no way to die!
 
 In the green cube, I couldn’t move my back legs to scratch the stings I could feel. A tick had claimed my earlobe, a fly spat on my eye, and a large dungbeetle lumbered over. When I got a good look at him, I chatted him, asking that he please move out of my personal space. He stuck his butt in the air. It was rude. 
 
- I could smell the earth again. The night had moistened things. We were by a river, I realized. I could smell the fishbones nearby. Ants sampled my body, but mercifully only from the numb parts. Decompositions surrounded me. 
+I could smell the earth again. The night had moistened things. We were by a river, I realized. I could smell the fishbones nearby. Ants sampled my body, but mercifully only from the numb parts. Decompositions surrounded me. 
 
 I was lying with my collapsed eye upward. I had little experience looking through one of those, but such is par for course when in a new body. There was only a little field of vision left, and what I saw were bats. Many bats spun around my head into the night, picking off of the fruit and broccoli left for me.  I’m not sure the bats ever stopped. 
 
 Everybody was entitled to what was left of me. This didn’t exclude me necessarily, but the nature of my challenges were that I couldn’t take full advantage. Weak but live, I figured this must be how the beasts want me when they eat. Would I ever be able to fight the fleas again? They really bothered me. 
 
-Morning came, and so did soup. It was in a long, hard thing, maybe a bug part? It pumped my mouth full of the strangest food I’d ever tasted, over and over. I ate up gratefully. After all, since I'd eating bark, I started to like it all. This soup tasted like the willow bark in back of the cultivated grass. The meal went on and on. Now this really was much better than bark, I tell you! The fleas agreed; their mornings were sweetened as well. 
+Morning came, and so did soup. It was in a long, hard thing, maybe a bug part? It pumped my mouth full of the strangest food I’d ever tasted, over and over. I ate up gratefully. Since I'd started eating bark, I started to like it all. This soup tasted like the willow bark in back of the cultivated grass. The meal went on and on. Now this really was much better than bark, I tell you! The fleas agreed; their mornings were sweetened as well. 
 
 I smelled no smoke that morning, no evidence of fire. My eyes revealed to me the lush greens and golds I knew before. I couldn’t see much, but I knew that the fire never happened. Bolting to find Onawa would be great, but I was stuck in the clutches of the beasts. 
 
