@@ -1,8 +1,8 @@
 <?xml version="1.0" encoding="utf-8"?>
 <feed xmlns="http://www.w3.org/2005/Atom">
 
-  <title><![CDATA[Category: Short Stories | Hellender]]></title>
-  <link href="http://www.hellender.com/blog/categories/short-stories/atom.xml" rel="self"/>
+  <title><![CDATA[Category: Fiction | Hellender]]></title>
+  <link href="http://www.hellender.com/blog/categories/fiction/atom.xml" rel="self"/>
   <link href="http://www.hellender.com/"/>
   <updated>2014-06-18T06:21:21-07:00</updated>
   <id>http://www.hellender.com/</id>
