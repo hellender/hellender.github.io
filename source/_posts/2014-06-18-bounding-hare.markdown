@@ -16,7 +16,7 @@ I looked hard, I tried not to move, but my legs kept flailing. It was onto me. I
 
 In it's clutches, I went up. I saw all black. It placed me in between it's breasts? I was not in its mouth! Why? I kicked off to escape. I forgot about all the pain, but I still couldn't escape! Powerful gravity had my limbs stuck. Like a nightmare, but not being chased and eaten, A terror! A TERROR! 
 
-It had roared at me as I lay on downy softness with jagged ice beneath. The round light above was not what it used to be to me, I had never looked at it this way before. It was surrounded by the entrance of my home. The shape approached and jarred me. I couldn't see the light anymore. Another shape came up and growled. I lost consciousness. 
+It had roared at me as I lay on softness with jagged ice beneath. The round light above was not what it used to be to me, I had never looked at it this way before. It was surrounded by the entrance of my home. The shape approached and jarred me. I couldn't see the light anymore. Another shape came up and growled. I lost consciousness. 
 
 I thought my field was on fire. I could smell the itchy smoke, I could feel myself throb with a cough. Wondering where my partner was wouldn't stop the pain from growing with the flames. I wondered, did she feel this too? I knew somehow she didn't right then. The fire smell was so close to me, no doubt she'd be dead already, so, no she hadn't been feeling that screaming burn any longer, I figured. I was happy for her, and then I sneezed. Every bone in my face had become two or more, and they all shifted and pinched the miserable meat between. Oooooooooooow, I whispered. 
 
