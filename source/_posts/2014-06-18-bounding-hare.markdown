@@ -103,7 +103,7 @@ It was another impact!
 
 The feline yowled and ran off. The person beast didn’t strike my shaking body, though. It gently collected me in softness. It really didn’t intend to eat me, I realized. 
 
-The beast placed me in the form. It talked to me.
+The beast placed me in the form. It talked to me. It listened. It knew my name. 
 
 "Ooodin... I love you, Odin. Please rest up now."
 
