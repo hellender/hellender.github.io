@@ -103,11 +103,17 @@ It was another impact!
 
 The feline yowled and ran off. The person beast didn’t hit me with the broom, though. It gently collected me, shaking, in softness. It really didn’t intend to eat me, I realized. 
 
-The beast placed me in the form. It talked to me. I listened. It loved me, and wanted me to rest up. I chatted it back, I felt the love. We fell asleep like this, and the feline stayed away. 
+The beast placed me in the form. It talked to me.
 
-When my mother was killed, I didn’t understand. Nobody was there to save her from the feline. I didn’t understand why I was born again to this beast. Could my mother have saved me from this? 
+"Ooodin... I love you, Odin. Please rest up now."
 
-Onawa would have to raise our family without out me. I couldn’t save her from uncertainty. Not before, not now. 
+I chatted it back, I felt the love. We fell asleep like this, and the feline stayed away. 
 
-My eyes blink now. I can see the hay and berries they gift me with both of them. Only time will tell when, and if, I may be unbound. I’d love to dance again. 
+When my mother was killed, I didn’t understand. Nobody was there to save her from the feline. I didn’t understand why I was born again to this beast. Could my mother have saved me from all this? 
+
+Onawa would have to raise our family without out me. I couldn’t save her from uncertainty. Not before, not now. My beast approaches.
+
+"Odin, are you hungry, Bunny Boy?"
+
+My eyes blink now. I can see the hay and berries with both of them. Only time will tell when, and if, I may be unbound. I’d love to dance again. 
 
