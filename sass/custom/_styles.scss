@@ -6,35 +6,27 @@ img.no-border {
     box-shadow: none;
 }
 
-.octopress-authorbox {
-	border-top: 4px solid #333;
-	background-color: #eee;
-
-	.author-pic {
-		float: left;
-		margin: 8px;
-	}
-	
-	.author-about {
-		float: left;
-		margin: 5px;
-		padding: 5px;
-		ul {
-			list-style: none;
-			
-			li {
-				display: inline;
-				margin-left: 5px;
-			}
-		}
-	
-	}
-}
-
-.octopress-authorbox:after {
-    content: ".";
-    display: block;
-    height: 0;
-    clear: both;
-    visibility: hidden;
+.about {
+     font-style: italic;
+     background-color: #FFF;
+     padding: 10px;
+     border-radius: 5px;
+     border: 1px solid #CCC;
+     box-shadow: 0 0 5px #CCC;
+     overflow: hidden;
+     clear: both;
+     .about-image {
+          width: 150px;
+          float: left;
+          display: inline-block;
+          margin-right: 20px;
+     }
+     .about-desc > hr {
+          border: none;
+          border-top: 1px dotted #CCC;
+          padding-top: 10px;
+     }
+     #twitter-widget-1 {
+          float: right
+     }
 }

@@ -8,7 +8,7 @@ categories:
  - Fiction
 author: hellender
 ---
-{% img no-border left http://i.imgur.com/HeLALFx.png Crossing "A young cottontail bounds through the grass, on a rendezvous with fate" %}
+{% img no-border left /images/JumpingRabbit2.png Crossing "A young cottontail bounds through the grass, on a rendezvous with fate" %}
 
 The cultivated blades sheltered me as I began my last dance. My partner watched across the way. I skipped into a collision, ricocheted and collapsed. There, I lay on my side, crushed. I was leaving myself for dead. 
 
