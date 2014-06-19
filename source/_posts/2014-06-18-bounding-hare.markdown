@@ -2,6 +2,7 @@
 layout: post
 title: "Bounding Hare"
 date: 2014-06-18 05:33:59 -0700
+author: hellender
 comments: true
 categories:
  - Short Stories
