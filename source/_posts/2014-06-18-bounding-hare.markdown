@@ -8,13 +8,15 @@ categories:
  - Fiction
 author: hellender
 ---
+{% soundcloud https://soundcloud.com/hellender/bounding-hare-score %} 
+
 {% img no-border left /images/JumpingRabbit2.png Crossing "A young cottontail bounds through the grass, on a rendezvous with fate" %}
 
 The cultivated blades sheltered me as I began my last dance. My partner watched across the way. I skipped into a collision, ricocheted and collapsed. There, I lay on my side, crushed. I was leaving myself for dead. 
 
 Every breath hurt more. I was messing myself from the pain. The bleary sky lights overtook my upward eye, or was it already gone? I felt my face pulling in on itself. A dark shape came to take me for life. 
 
-I looked hard, I tried not to move, but my legs kept flailing. It was onto me. I knew it saw my body, so I gave up, I forgot what my mother taught me about staying so still, and I looked back and forth at it. It wasn't my partner, but I loved it as if I had found her in that scary shape. It took me. 
+I looked hard, I tried not to move, but my legs kept flailing. It was onto me. I knew it saw my body, so I gave up. I forgot what my mother taught me about staying so still, and I looked back and forth at it. It wasn't my partner, but I loved it as if I had found her in that scary shape. It took me. 
 
 In it's clutches, I went up. I saw all black. It placed me in between its breasts? I was not in its mouth! Why? I kicked off to escape. I forgot about all the pain, but I still couldn't escape! Powerful gravity had my limbs stuck. Like a nightmare, but not being chased and eaten, A terror! A TERROR! 
 
@@ -24,7 +26,7 @@ I thought my field was on fire. I could smell the itchy smoke, I could feel myse
 
 The world was spinning around me. Or was I spinning? Either way, I was on tilt. 
 
-Oh, now I get it, I remember thinking, I'm dead and nobody told me. How silly of me. 
+Oh, now I get it, I remember thinking. I'm dead and nobody told me. How silly of me. 
 
 I was born again by the river, like before, but in a big cube. Why was I wet? I didn't know. 
 
