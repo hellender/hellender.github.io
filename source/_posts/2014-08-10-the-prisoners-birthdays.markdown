@@ -10,7 +10,7 @@ author: hellender
 ---
 {% soundcloud https://soundcloud.com/hellender/cowboy-journalist %}
 
-[{% img no-border /images/Petulance-Prisoners-Birthdays-small.png "Petulance, in The Prisoners' Birthdays" %}](/images/Petulance-Prisoners-Birthdays.png)
+[{% img no-border /images/Petulance-Prisoners-Birthdays-small.png Petulance the cupcake, in The Prisoners' Birthdays %}](/images/Petulance-Prisoners-Birthdays.png)
 
 Ill again from the vigilance, my mind is roiling. On the loft bed above me, Elliott sleeps. I'm concerned with two men. I know where they are too; One is in prison in Louisiana, and the other in jail in Texas. Both will soon have a birthday behind bars. 
 
