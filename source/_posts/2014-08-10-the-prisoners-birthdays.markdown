@@ -12,7 +12,7 @@ author: hellender
 
 [{% img no-border /images/Petulance-Prisoners-Birthdays-small.png "Petulance, in The Prisoners' Birthdays" %}](/images/Petulance-Prisoners-Birthdays.png)
 
-Ill again from the vigilance, my mind is roiling. On the loft bed above me, Elliott sleeps. Two men concern me. I know where they are too; One is in prison in Louisiana, and the other in jail in Texas. Both will soon have a birthday behind bars. 
+Ill again from the vigilance, my mind is roiling. On the loft bed above me, Elliott sleeps. I'm concerned with two men. I know where they are too; One is in prison in Louisiana, and the other in jail in Texas. Both will soon have a birthday behind bars. 
 
 Some have suggested that pills might help these obsessions. What they don't know is I negate the need for my own lobotomy by thinking about these things. From the back to the front, and back again, boom boom boom. These circuits soar over the neuronal quagmires, keep me just rattled enough to stave off sleep and the dreams. This way is best, yes. To be disturbed by external situations rather than internal is more moral I think.
 
