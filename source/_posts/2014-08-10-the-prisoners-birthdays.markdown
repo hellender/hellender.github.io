@@ -5,8 +5,7 @@ date: 2014-08-10 14:08:34 -0700
 comments: true
 categories: 
  - Essays
- - Nonfiction
-author: hellender
+author: Hellender
 ---
 {% soundcloud https://soundcloud.com/hellender/cowboy-journalist %}
 
