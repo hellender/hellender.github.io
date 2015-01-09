@@ -33,7 +33,7 @@ Got to be a smoker
 you can still hear him wheeze  
 
 He wear a clown face  
-He got room in his cell-space  
+Has no room in his cell-space  
 He got trigger-finger  
 He shoot broken systems  
 He say, "They watch you,  
