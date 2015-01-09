@@ -26,6 +26,6 @@ With the new law, my friend's mom could buy her the Plan B pill today, but this 
 
 As a teen child, I was raped frequently. Had I forgotten to take my birth control pill, and a condom failed, I might've risked pregnancy by a teacher. Had that occurred, I sure would've wanted to continue with my choice not to conceive and access to an alternative. Plan B becoming available to girls may represent one change in how powerless child sex abuse victims are to control their experience. I know precious few things seem in control to a child sexual abuse victim. Their knowing they can legally access emergency contraception might also help them deduce that it's okay to discuss matters of reproductive and sexual health, including abuse.
 
-Besides some nervous shakes, I've had no side effects. I've say by the fire, grateful for my rights for hours now. I'm hopeful that we can work to grant those most vulnerable the right to access emergency contraception as well.
+Besides some nervous shakes, I've had no side effects. I've sat by the fire, grateful for my rights for hours now. I'm hopeful that we can work to grant those most vulnerable the right to access emergency contraception as well.
 
 There's another thing going on with my body, I'm crying. This may be a side effect of the dose of hormones, but for some reason I don't think so. 
