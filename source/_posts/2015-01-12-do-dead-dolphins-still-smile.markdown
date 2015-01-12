@@ -6,7 +6,7 @@ comments: true
 categories:
  - Essays
  - Audio
- author: Hellender
+author: Hellender
 ---
 {% soundcloud https://soundcloud.com/hellender/do-dead-dolphins-still-smile %}
 
