@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Luminous"
+date: 2015-03-07 13:43:13 -0800
+comments: true
+categories: 
+---
+{% img no-border /images/Luminous.png Luminous Luminous %}
+
+Dedicated to Petite Pointer. Mixed media, 2015.
