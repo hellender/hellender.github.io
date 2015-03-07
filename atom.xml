@@ -4,7 +4,7 @@
   <title><![CDATA[Hellender]]></title>
   <link href="http://www.hellender.com/atom.xml" rel="self"/>
   <link href="http://www.hellender.com/"/>
-  <updated>2015-02-26T23:14:12-08:00</updated>
+  <updated>2015-03-07T15:26:17-08:00</updated>
   <id>http://www.hellender.com/</id>
   <author>
     <name><![CDATA[Hellender]]></name>
@@ -12,6 +12,17 @@
   </author>
   <generator uri="http://octopress.org/">Octopress</generator>
 
+  
+  <entry>
+    <title type="html"><![CDATA[Luminous]]></title>
+    <link href="http://www.hellender.com/blog/2015/03/07/luminous/"/>
+    <updated>2015-03-07T13:43:13-08:00</updated>
+    <id>http://www.hellender.com/blog/2015/03/07/luminous</id>
+    <content type="html"><![CDATA[<p><img class="no-border" src="http://www.hellender.com/images/Luminous.png" title="Luminous Luminous" ></p>
+
+<p>Dedicated to Petite Pointer. Mixed media, 2015.</p>
+]]></content>
+  </entry>
   
   <entry>
     <title type="html"><![CDATA[Do Dead Dolphins Still Smile?]]></title>
