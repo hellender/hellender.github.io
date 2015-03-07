@@ -4,6 +4,7 @@ title: "Luminous"
 date: 2015-03-07 13:43:13 -0800
 comments: true
 categories: 
+ - Art
 ---
 {% img no-border /images/Luminous.png Luminous Luminous %}
 
