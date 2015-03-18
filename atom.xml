@@ -4,7 +4,7 @@
   <title><![CDATA[Hellender]]></title>
   <link href="http://www.hellender.com/atom.xml" rel="self"/>
   <link href="http://www.hellender.com/"/>
-  <updated>2015-03-08T11:35:33-07:00</updated>
+  <updated>2015-03-18T01:42:16-07:00</updated>
   <id>http://www.hellender.com/</id>
   <author>
     <name><![CDATA[Hellender]]></name>
@@ -12,6 +12,17 @@
   </author>
   <generator uri="http://octopress.org/">Octopress</generator>
 
+  
+  <entry>
+    <title type="html"><![CDATA[Portrait of Brian Travis]]></title>
+    <link href="http://www.hellender.com/blog/2015/03/17/brian-travis/"/>
+    <updated>2015-03-17T00:00:00-07:00</updated>
+    <id>http://www.hellender.com/blog/2015/03/17/brian-travis</id>
+    <content type="html"><![CDATA[<p><img class="no-border" src="http://www.hellender.com/images/Brian-Travis.png" title="Brian Travis" alt="Portrait of Brian Travis"></p>
+
+<p>Portrait of Brian Travis. Mixed media, 2015.</p>
+]]></content>
+  </entry>
   
   <entry>
     <title type="html"><![CDATA[Roady -N- Grace]]></title>
